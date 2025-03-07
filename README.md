@@ -5,7 +5,7 @@ yo its lucasz228
 
 tg @lucasz228
 
-discord @lzz228
+discord @koboshkobosh
 
 github @zlc1003 @zlc1004 @zlc1005 @lucasz228
 
